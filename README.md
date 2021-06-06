@@ -1,2 +1,2 @@
 # imago-wiki
-Imago Wiki
+Imago Wiki: http://imago-rp.de/
